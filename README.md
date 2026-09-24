@@ -211,4 +211,4 @@ YACReader is available as a complete free version with all features and updates 
 Elevate your comic reading experience today! Download YACReader for free and enjoy a world of comics at your fingertips!
 
 ---
-**Last updated:** 2026-09-24 13:15:40 UTC
+**Last updated:** 2026-09-24 18:13:56 UTC
